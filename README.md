@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Aditya P R
 - 👀 I’m interested in GAMING!!!
-- 🌱 I’m currently learning whatever makes me money for travelling the world.
+- 🌱 I’m currently learning whatever makes me money to travel the world.
 - 💞️ I’m looking to collaborate on co-op multiplayer games
 - 📫 How to reach me .... https://www.linkedin.com/in/aditya-pr-872951128/
 
