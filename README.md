@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @adi4fab
+- 👋 Hi, I’m Aditya P R
 - 👀 I’m interested in GAMING!!!
 - 🌱 I’m currently learning whatever makes me money for travelling the world.
 - 💞️ I’m looking to collaborate on co-op multiplayer games
